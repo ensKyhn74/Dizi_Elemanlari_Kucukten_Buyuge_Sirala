@@ -1,0 +1,1 @@
+# Dizi_Elemanlari_Kucukten_Buyuge_Sirala
